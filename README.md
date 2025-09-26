@@ -1,0 +1,2 @@
+# pariwisata
+sejuk dan dingin
